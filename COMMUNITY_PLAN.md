@@ -1,1 +1,1 @@
-Describe the plan to support the community
+In any case, the biggest blockchain project :-)
