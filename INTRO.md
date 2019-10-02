@@ -1,5 +1,5 @@
 Here's to the crazy ones, the misfits, the rebels, the troublemakers, the round pegs in the square holes... the ones who see things differently -- they're not fond of rules... You can quote them, disagree with them, glorify or vilify them, but the only thing you can't do is ignore them because they change things...
-
+---
 We are not Steve Jobs ;-) We just think it's a cool name for a really trusted SR. No Scam-bullshit...
 We think we need more people like him. Good people with incredible ideas. His philosophy in our present age. We combine Blockchain with something totally crazy. Something that has never been before. 
 
