@@ -1,14 +1,14 @@
 ## Founder
 
-Name: [name]
-Role: [role]
+Name: Stefan Petersohn
+Role: CEO
 
 ## Team Member 1
 
-Name: [name]
-Role: [role]
+Name: Elisa Spiegel
+Role: Interior-Design
 
 ## Team Member 2
 
-Name: [name]
-Role: [role]
+Name: Volker Fredman
+Role: Architect
