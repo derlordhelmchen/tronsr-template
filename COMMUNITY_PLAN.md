@@ -1,1 +1,1 @@
-Describe the plan to support the community
+Every Rewards => in this Project... no ICO needed
